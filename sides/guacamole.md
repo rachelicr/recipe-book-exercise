@@ -1,7 +1,7 @@
 # Guacamole recipe
 
 
-## Ingredient
+## Ingredients
 
 - 2 avocados
 - 1 chili
