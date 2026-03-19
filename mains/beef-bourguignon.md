@@ -1,3 +1,5 @@
+Beef-bourguignon recipe
+
 ## Ingredients
 1.6kg/3lb 8oz good-quality braising steak (chuck steak)
 4–5 tbsp sunflower oil
@@ -17,7 +19,8 @@
 flaked sea salt and freshly ground black pepper
 chopped fresh parsley, to garnish
 
-## Method
+## Instructions
+
 Preheat the oven to 170C/150C Fan/Gas 3.
 
 Cut the braising steak into chunky pieces, each around 4–5cm/1½–2in. Trim off any really hard fat or sinew. Season the beef really well with salt and pepper.
