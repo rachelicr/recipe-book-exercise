@@ -1,6 +1,7 @@
 Beef-bourguignon recipe
 
 ## Ingredients
+
 1.6kg/3lb 8oz good-quality braising steak (chuck steak)
 4–5 tbsp sunflower oil
 200g/7oz smoked bacon lardons or smoked streaky bacon, cut into 2cm/¾in pieces
