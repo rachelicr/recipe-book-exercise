@@ -11,7 +11,7 @@
 
 ## Ingredients
 
-- Pie shell
+- Pie shell (or gluten free pie shell)
 - Nutmeg
 - Can of evaporated milk
 - 0.4 cup sugar
