@@ -4,7 +4,7 @@
 
 600 L of olive oil
 50 ml of apple cider vinegar
-1tsp of dijon mustard
+1 tsp of dijon mustard
 1tsp honey
 
 ## Instructions
