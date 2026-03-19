@@ -8,7 +8,6 @@
 - 5 ounces shredded mozzarella cheese, about 1 and 1/4 cups
 - 2.5 ounces pepperoni , about half a 5 oz package
 - 2 tablespoons shredded parmesan cheese
-- Pineapple
 
 ## Instructions
 
