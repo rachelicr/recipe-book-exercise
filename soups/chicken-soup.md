@@ -34,4 +34,3 @@ Once it’s boiling, skim off any extra foam or scum on the surface. Lower the h
 After 2.5-3 hours, add the goji berries. These will only take a few minutes to rehydrate in the soup.
 
 Season with salt to taste. Enjoy!
-tududududu m 
