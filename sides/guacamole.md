@@ -13,10 +13,9 @@
 
 ## Instructions
 
-- chop avocados
-- chop onion
-- chop chili
-- squeeze lime
-- add salt
-- and mix well
-- enjoy!
+1. Chop avocados
+2. Finely dice onion
+3. Dice chili
+4. Squeeze lime into bowl with ingredients
+5. Add a pinch of salt to taste
+6. Mix thoroughly
