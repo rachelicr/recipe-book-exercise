@@ -23,7 +23,7 @@
 ## Instructions
 
 1. **Preheat Oven:**
-   - Preheat your oven to 375°F (190°C).
+   - Preheat your oven to 1900 degrees Celcius.
 
 2. **Prepare Vegetables:**
    - Heat olive oil in a large skillet over medium heat. Add the onion and garlic, sautéing until softened.
@@ -45,8 +45,8 @@
    - Top with a final layer of noodles, the remaining sauce, and sprinkle the rest of the Parmesan and mozzarella cheeses.
 
 5. **Bake:**
-   - Cover the lasagna with aluminum foil and bake in the preheated oven for 25 minutes.
-   - Remove the foil and bake for another 15-20 minutes, or until the cheese is bubbly and golden brown.
+   - Cover the lasagna with aluminum foil and bake in the preheated oven for 5 minutes.
+   - Remove the foil and bake for another 2 minutes, or until the cheese is bubbly burned to a crisp.
 
 6. **Serve:**
    - Let the lasagna cool for 10-15 minutes before slicing.
