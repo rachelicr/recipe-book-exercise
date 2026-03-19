@@ -1,4 +1,4 @@
-## Chicken chicken chicken suuuu
+# Chicken Soup
 
 ## Ingredients
 2 large chicken leg quarters (or 1 whole chicken)
