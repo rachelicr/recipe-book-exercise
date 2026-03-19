@@ -20,7 +20,7 @@ salt to taste
 4 long pieces codonopsis root
 
 ## Instructions
-- blanch the chicken and pork
+- Blanch the chicken and pork
 Bring a pot of water to boil, then add the chicken leg quarters and pork bones or meat.
 2 large chicken leg quarters,3 pork neck bones
 Blanch for 3-5 minutes. You should see a lot of proteins and scum float to the surface. Drain the water.
