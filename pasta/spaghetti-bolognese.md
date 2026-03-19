@@ -9,7 +9,7 @@
 - Basil
 - Onion
 
-## Instructionss
+## Instructions
 - Cook pasta.
 - Fry garlic and onion in oil.
 - Add minced beef.
