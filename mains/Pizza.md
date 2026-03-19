@@ -1,4 +1,4 @@
-# Pizzzza ('cough' 'cough' this is the typo)
+# Pizza
 
 ## Ingredients
 - 16 ounce ball of pizza dough, 12 to 16 ounces is fine
