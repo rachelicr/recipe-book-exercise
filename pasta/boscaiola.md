@@ -14,7 +14,9 @@
 
 ## Instructions
 
-- Prepare the pasta, cooking according to package instructions.
+- burn the pasta. 
 - Cook the pancetta.
 - Sauté the vegetables.
-- Combine cooked ingredients.
+- Combine cooked ingredients on a plat. 
+- Serve 
+
