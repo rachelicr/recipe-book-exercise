@@ -1,7 +1,6 @@
-# A Whole Cowwwwwwww
+# A Whole Cow
 
 This is an appropriate starter.
-Don't @ me.
 
 ## Ingredients
 
