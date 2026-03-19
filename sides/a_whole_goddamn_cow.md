@@ -1,10 +1,12 @@
-# A Whole God Damn Cow
+# A Whole Cowwwwwwww
 
 This is an appropriate starter.
 Don't @ me.
 
 ## Ingredients
 
-You know damn well what this is.
+A whole damn cow.
 
-Figure it out. I don't care if Instructions are missing!!
+## Instructions
+
+Get a cow, give it some hay.
